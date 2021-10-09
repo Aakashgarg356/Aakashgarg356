@@ -6,7 +6,7 @@
 
 You can reach me out on any of the social platforms given here...
 
-1. Linkedin - 
+1. Linkedin - https://www.linkedin.com/in/aakashgarg356/
 2. Facebook - 
 3. Instagram - 
 4. Twitter - 
